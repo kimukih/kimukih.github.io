@@ -1,1 +1,0 @@
-# kimukih.github.io
